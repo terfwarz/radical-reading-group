@@ -1,4 +1,4 @@
-### Notes on: Prohibition, Psychoanalysis, and the Production of the Heterosexual Matrix
+### Chapter 2: Prohibition, Psychoanalysis, and the Production of the Heterosexual Matrix
 
 > On occasion feminist theory has been drawn to the thought of an origin,
 a time before what some would call “patriarchy” that would provide an
