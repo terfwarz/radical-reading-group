@@ -11,7 +11,7 @@ these kinds of inquiry sought understandably to show that the antifeminist
 argument in favor of the inevitability of patriarchy constituted a
 reification and naturalization of a historical and contingent phenomenon.
 
-I haven't yet seen much discussion within feminist circuits that discusses the pre-patriarchical. I am at the point that I do not think anyone is spending any time conceptualizing about such a thing, or within publically exposed spaces.  
+I haven't yet seen much discussion within feminist circuits that discusses the pre-patriarchical. I am at the point that I do not think anyone is spending any time conceptualizing about such a thing, or at least are not doing it within publically exposed spaces.  
 
 two points: 
 
